@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **sivajirao948@gmail.com**
 
-- 📄 Know about my experiences [file:///D:/Resume/Kadham%20Sivaji%20rao.pdf](file:///D:/Resume/Kadham%20Sivaji%20rao.pdf)
+- 📄 Know about my experiences : https://app.luminpdf.com/viewer/64e899a2f0d19f045469daa8
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
